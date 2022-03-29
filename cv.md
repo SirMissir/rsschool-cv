@@ -1,5 +1,5 @@
 # Pak Konstantin
-***
+
 ##  Contacts:
 
 * mail: pakman_96@mail.ru
